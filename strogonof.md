@@ -13,7 +13,7 @@
 - 2 colheres (sopa) de ketchup
 - 1 lata de NESTLÉ® Creme de Leite
 
-##Modo de preparo
+## Modo de preparo
 
 1. Em uma frigideira grande, derreta 3 colheres (sopa) de manteiga e doure o frango, aos poucos, em fogo alto.
 
